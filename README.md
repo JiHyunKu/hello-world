@@ -7,6 +7,6 @@ First I graduated from community college.
 Then I graduated from liberal arts college.
 Now I am at one of the ivy leagues, starting my educational career once again.
 
-I am here because of my loving family, and I wish to continue striving for the highest. After all, this only the beginning.
+I am here because of my loving family, and I wish to continue my journey forward. After all, this only the beginning.
 
-... also I love sleep.
+... and I love sleep.
